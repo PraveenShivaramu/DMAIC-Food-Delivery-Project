@@ -59,5 +59,6 @@ The goal is to:
 **Praveen Shivaramu**
 
 MSc Industry 4.0 & Management | Lean Six Sigma Green Belt Certified
+
 https://www.linkedin.com/in/praveen-shivaramu-a3a54b218/
 
